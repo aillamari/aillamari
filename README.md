@@ -11,5 +11,7 @@
 - 📚 Uma coisa que amo fazer e ler e ir ao cinema
 - 🍽 Minha comida favorita e açaí 
 - 👩‍👧‍👦 Tenho duas irmãs e um irmão 
-- 📓 Atualmente minhas materias favoritas são robótica e biologia 
--->
+- 📓 Atualmente minhas materias favoritas são robótica e biologia
+
+
+![](https://gizmodo.uol.com.br/wp-content/blogs.dir/8/files/2021/02/nyan-cat.gif)
